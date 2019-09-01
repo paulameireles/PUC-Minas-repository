@@ -1,1 +1,1 @@
-Repositório de trabalhos de Aed2
+Repositório de trabalhos direcionados a PUC 
